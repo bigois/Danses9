@@ -2,7 +2,9 @@
 
 # Saudações, terráqueos! :vulcan_salute: <h3>
 ## Me chamo Danna! :alien: <h2>
-
+### Atualmente sigo desbravando o mundo **Tech** *(momento transição de carreira)* e apta a seguir os caminhos que mais me agradarem nessa imensidão.<h3>
+### Eu gosto de natureza, chá, astrologia ♓ e aprender em plataformas digitais. 
+   uhuhuhu...  <h3>  
 
 **Danses9/Danses9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
