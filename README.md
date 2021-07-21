@@ -6,6 +6,7 @@
 ### Em breve eu espero aprender Chinês támbem. 🐉 <h3>
 ###   *uhuhuhu...* <h3>
   
+<script src="//platform.linkedin.com/in.js" type="text/javascript"> lang: pt_BR</script><script type="IN/Share" data-url="LINK"></script>
 
 
 
