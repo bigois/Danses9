@@ -1,8 +1,8 @@
 
 !![Alt Text](https://media.giphy.com/media/KfBbmcllklLRdwO0Ep/giphy.gif)
 
-### Saudações, terraquios ![Alt Text](:vulcan_salute:) 
-Me chamo Danna!   !:alien: <h3>
+### Saudações, terráqueos! :vulcan_salute: 
+## Me chamo Danna! :alien: 
 
 
 **Danses9/Danses9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
