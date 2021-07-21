@@ -8,4 +8,5 @@
   
 
 
+<div class="g-plusone" data-size="medium" data-href="https://www.linkedin.com/in/danna-silva/"></div>
 
