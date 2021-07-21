@@ -7,6 +7,5 @@
 ###   *uhuhuhu...* <h3>
   
 
-<script src="https://www.linkedin.com/in" type="text/javascript"> lang: pt_BR</script><script type="IN/Share" data-url="/danna-silva/"></script>                                                                                         
 
 
