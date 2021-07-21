@@ -1,7 +1,8 @@
 
 !![Alt Text](https://media.giphy.com/media/KfBbmcllklLRdwO0Ep/giphy.gif)
 
-### Me chamo Danna,  <h3>
+### Saudações, terraquios ![Alt Text](:vulcan_salute:) 
+Me chamo Danna!   ![Alt Text](:alien:)<h3>
 
 
 **Danses9/Danses9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
