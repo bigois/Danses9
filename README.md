@@ -7,8 +7,7 @@
 ###   *uhuhuhu...* <h3>
   
 
-  
-  ![image] <script src="//platform.linkedin.com/in/danna-silva/" type="text/javascript"> lang: pt_BR</script><script type="IN/Share" data-url="LINK"></script>
+ <script src="//platform.linkedin.com/in/danna-silva/" type="text/javascript"> lang: pt_BR</script><script type="IN/Share" data-url="LINK"></script>
 
   
   https://www.linkedin.com/in/
