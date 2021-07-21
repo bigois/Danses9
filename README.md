@@ -7,5 +7,5 @@
 ###   *uhuhuhu...* <h3>
   
   
-  ![image](https://user-images.githubusercontent.com/85704911/126438009-81b895ce-203c-41e7-b4cc-82a92d8fe407.png)
+
 
