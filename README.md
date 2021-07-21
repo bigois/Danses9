@@ -7,6 +7,6 @@
 ###   *uhuhuhu...* <h3>
   
 
-
+<script src="//platform.linkedin.com/in.js" type="text/javascript"> lang: pt_BR</script><script type="IN/Share" data-url="https://www.linkedin.com/in/danna-silva/"></script>                                                                                         
 
 
