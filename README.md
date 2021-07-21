@@ -5,3 +5,7 @@
 ### Atualmente sigo aprendendo em plataformas digitais, onde tive a melhor oportunidade até o momento e verei novos desafios na faculdade de ✨Análise e Desenvolvimento de Sistemas.✨
 ### Em breve eu espero aprender Chinês támbem. 🐉 <h3>
 ###   *uhuhuhu...* <h3>
+  
+  
+  ![image](https://user-images.githubusercontent.com/85704911/126438009-81b895ce-203c-41e7-b4cc-82a92d8fe407.png)
+
